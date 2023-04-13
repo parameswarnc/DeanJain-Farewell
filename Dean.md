@@ -45,7 +45,7 @@ footer: "Dean, the Heart and Soul of EPSAM Data :heart:"
 
 ### Param Says:
 #### Dean: A true leader 
-##### Your energy and bright ideas made work so much more enjoyable! Thank you for being a great leader, you are really like a friend for us. thank you for all the support and guidance, wish you good time ahead.
+##### Your energy and bright ideas made work so much more enjoyable! Thank you for being a great leader, you are really like a friend for us. Thank you for all the support and guidance, wish you good time ahead.
 
 ---
 :heart::purple_heart::green_heart::blue_heart:
